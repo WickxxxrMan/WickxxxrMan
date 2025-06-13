@@ -16,3 +16,4 @@
 - Hoyoverse
 - Omori
 - Valorent players you guys are annoying
+- Vivziepop enjoyers go AWAY
