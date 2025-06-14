@@ -20,14 +20,14 @@
 - C.AI users (gags)
 
 
-   ## INT IF YOU LIKE
-  + **SPIDER GANG PLSPLSPLS SPIDER GANG ENJOYERS INT IM BEGGING YOU!!!!**
-  + BLOODHOUND GANG
-  + MLP
-  + Fishing + Marine Biology
-  + Dan Vs.
-  + **POSTAL GAMES**
-  + **TF2 + Emesis Blue**
-  + **FNAF**
-  + SLimecicle, Ted Nivison, Jschlatt watchers 🫀
-  + Frankenstein by Mary Shelly readers PLEEEEEEAAASEEE PLSPLSPLS
+## INT / BYF
++ **SPIDER GANG PLSPLSPLS SPIDER GANG ENJOYERS INT IM BEGGING YOU!!!!**
++ BLOODHOUND GANG
++  MLP
++ Fishing + Marine Biology
++ Dan Vs.
++ **POSTAL GAMES**
++ **TF2 + Emesis Blue**
++ **FNAF**
++ SLimecicle, Ted Nivison, Jschlatt watchers 🫀
++ Frankenstein by Mary Shelly readers PLEEEEEEAAASEEE PLSPLSPLS
