@@ -1,4 +1,4 @@
-
+![](https://komarev.com/ghpvc/?username=WickxxxrMan&style=plastic&abbreviated=true&color=570f0f&label=Fish+in+the+Pond)
 <h1 align="center">PT GITHUB LURKERS, HERE'S A FEW THINGS TO NOTE!</h1>
 
 - _**WE ARE NOT BODILY A MINOR**_
