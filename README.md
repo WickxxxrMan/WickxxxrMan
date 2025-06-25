@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=WickxxxrMan&style=plastic&abbreviated=true&color=570f0f&label=Fish+in+the+Pond)
+<br><br><br>
 <h1 align="center">PT GITHUB LURKERS, HERE'S A FEW THINGS TO NOTE!</h1>
 
 - _**WE ARE NOT BODILY A MINOR**_
@@ -35,3 +35,10 @@
 + **I HAVE NO MOUTH AND I MUST SCREAM**
 + Frankenstein by Mary Shelly readers PLEEEEEEAAASEEE PLSPLSPLS
 + DSAF !!!!!
+
+<br><br><br>
+<div align="center">
+  
+  ![](https://komarev.com/ghpvc/?username=WickxxxrMan&style=plastic&abbreviated=true&color=570f0f&label=Fish+in+the+Pond) 
+  
+</p>
