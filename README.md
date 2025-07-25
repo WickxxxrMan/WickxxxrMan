@@ -20,6 +20,7 @@
 - Valorent players you guys are annoying
 - Vivziepop enjoyers go AWAY
 - C.AI users (gags)
+- Madoka Magika fans
 <br/><br/><br/>
 <h1 align="center">INT / BYF</h1> 
 
