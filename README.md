@@ -6,6 +6,8 @@
 - WE ARE NOT OUR SOURCE. DONT BRING IT UP. AT LEAST ASK FIRST.
 - Dont like systems? Block us or we'll block you. We've been suffering with being a system for years. We do not have time to hear you blab about being a "pt" or "discord" system whatever the hell that is
 - Proshitters/commshitters/darkshitters go fuck yourselves ^_^ you dont see us copeing by shipping siblings and minors with adults ! :3c
+
+  **SEMI SERIOUS ABOUT THIS BECAUSE AS A "NON-EMO", YES IT IS DEEP TO US. IF YOU GENUINELY THINK THAT ANYTHING BLACK AND WHITE/BLACK + SOME OTHER COLOR IS EXCLUSIVLEY EMO DO NOT TALK TO US. WE ARE SO SICK OF THIS, YES IT IS THAT DEEP. YES WE HAVE A RIGHT TO BE MAD. CRY HARDER.**
 <br/><br/><br/>
 <h1 align="center"> $${\color{red}FANDOMS \space \color{red}DNI}$$</h1>
 
