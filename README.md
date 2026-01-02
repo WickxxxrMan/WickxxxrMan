@@ -27,6 +27,7 @@
 - Vivziepop enjoyers go AWAY
 - C.AI users (gags)
 - Madoka Magika fans
+- JJBA fans you guys are always so fucking rude bro
 <br/><br/><br/>
 <h1 align="center">INT / BYF</h1> 
 
