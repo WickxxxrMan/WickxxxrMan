@@ -17,6 +17,7 @@
 
 - Country humans, Third Reich cosplayers blocked on sight.
 - TCC + Zero Day and things similar.
+- Gore Street listeners/fans
 - Southpark enjoyers
 - Boyfriend to Death (cope healthier vro 🥀)
 - DSMP fandom (ESPECIALLY IF YOUR SYSTEM IS ALL DSMP MEMBERS)
